@@ -9,3 +9,4 @@ This is a page for new users to make sure they have the workflow for making chan
 * Daga (Hella!)
 * Dagaw (Hellaw!)
 * Dagawq (Hellawq!)
+* Dagawq (Hellawq!)
